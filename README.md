@@ -1,1 +1,1 @@
-# bjs2xodnjs.github.io
+# 이력서
